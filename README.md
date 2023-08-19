@@ -1,6 +1,7 @@
 ## City Hooper
 
-https://user-images.githubusercontent.com/56497318/127523659-248b7f2f-e2ce-4623-880d-62fe46e52718.mp4
+https://github.com/Arpitjain250901/City_Hooper/assets/113784924/865c3edb-bc5c-44e6-9948-ad7977b3e6d8
+
 
 
 
